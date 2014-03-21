@@ -1,4 +1,3 @@
 Simunko Luka
 4AHIF
-
-SAKAKAAAKAKAKt
+I KNWO YOU
